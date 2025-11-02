@@ -1,0 +1,1 @@
+# https-verified-result-hub.lovable.app
